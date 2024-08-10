@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mamkin-kovboi
+- 👋 Hi, I’m @Dan9
 - 👀 I’m interested in  ничего
 - 🌱 I’m currently learning нигде 
 - 💞️ I’m looking to collaborate on ...
